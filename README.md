@@ -9,3 +9,7 @@ i dont know what to say.  a little anti climatic..  we couldn't do anything cool
 i dont know sir... we are at this for a long time.  bro i have to save up energy for drinkings monsters...  i'm poop decked...
 
 i wonder sometimes though.  if you are indeed crazy like they say i am.  that we don't do much to achieve any ends.  thereby wasting my time...  so i wished it was beaming land again.  even power overwhelming kept things interesting.  now we dont do anything...
+
+so yeah there was no more to search for here.  its a dead end.  things fell over...  things happened.  everything was wrong.  oh well i guess its time for right right??  i dont know anymore bro.  when the monster can't even start up in your body and is making you sick.
+
+i dont know anymore bro.  we may be hitting another dead end.  you know of these otherwise my situation would be otherwise.  its a little expensive don't you think???
