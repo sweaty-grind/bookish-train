@@ -13,3 +13,9 @@ i wonder sometimes though.  if you are indeed crazy like they say i am.  that we
 so yeah there was no more to search for here.  its a dead end.  things fell over...  things happened.  everything was wrong.  oh well i guess its time for right right??  i dont know anymore bro.  when the monster can't even start up in your body and is making you sick.
 
 i dont know anymore bro.  we may be hitting another dead end.  you know of these otherwise my situation would be otherwise.  its a little expensive don't you think???
+
+man you know you scare me sometimes.  you tell me i have things to do that lasts forever...  keep the hope you get paid lol.  i wouldn't let you leave if this was real bro...  but its not.  we have omnipotent point of view....  how do you play the good guy when there is no reason to do so?? i wonder dude, that you did these things i am being unreasonable being upset at you for this...  i mean if you remove the part where you shaft then its what it is...
+
+so i was trying to find a moment of peace... i'm trying to communicate in your language lol...  i must say my mind is quite broken...  what should you be doing right now?? nothing and stop ordering skip... then we drank monsters and now we are here...
+
+some day i need to leave this shit dude.  its just not viable long term...
