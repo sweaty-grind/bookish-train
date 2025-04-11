@@ -3,3 +3,11 @@
 so many things happened in the world while i was away... i feel i dont have a part in society.  why are we doing this again?? this is where it ended and where it ended...
 
 i dont know man.  i feel dumb doing this with you.  i dont know how much more i can pull a cheapskate concept for you dude.  i'm here the whole time...  does nothing...  you do nothing bro.  this is negative productivity.  until we learned this actually did anything at all.  maybe this whole time was a bad dream???
+
+close together something something...  how about what you think about what is going on here? i feel lost.  i defeated your stuff yet i'm just burning oxygen still...  i dont know bro.  i think things are fixed bro...  just like a little bit more and you have the whole spectrum...  something something bro.
+
+i wish you guys made sense.  this shark just invites these people in so i show you the worst of it.  so we did consequences.  and sharkey held a bbq.  i hate this lol...
+
+maybe some day i'll understand what the fuck you are talking about when you tell me to trust you...  i dont know bro.  we spent them all.  no more here...
+
+nah i would say you dont have very much left to gather other than an extension in time...  did you find what you were looking for this whole time???
