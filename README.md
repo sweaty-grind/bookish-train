@@ -16,3 +16,6 @@ hmmm, i'm not understanding the situation...  hmmm.  got sent away for this guy'
 
 judging from experience you are lousy lol...
 
+sooo.  this is the truth of our relationship.  i gave you hocus pocus...  and you left me to dry cause you're stupid.  anything you want to tell yourself after i went to night school??? fack man. jumps on that too.  then jumps on this shit.  and this is starting to bug me quite a bit.  i am obligated to offer all outs or something like this.  i'm obligated to tell you entrance into this world is retarded.  why would you do this???  seriously.  you broke everything and did shit for me and then complains about stuff lol...  i dont know bro. i forgive cause you put in the effort to have only one brain cell.  its a truth of the matter.
+
+anyways. i need to stop this.  i'm getting annoyed at this lol...
